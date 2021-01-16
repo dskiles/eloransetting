@@ -1,0 +1,10 @@
+## Pirra
+Larger than any other nation in the known world, Pirra is a land that is both strengthened by its history and bound by it.  For millenia, the harsh, rugged lands have bred harsh, rugged men.  Since the fall of the Imperium, Pirran wit and self-reliance have carried the day.  
+
+Pirra is beset by enemies on all sides.  Temenite raiders harass their western shores.  The Dread Emperor of Anem has claimed it a rebellious province.  Strange beasts shamble north from the Diaspora.  The fungal horror of the moonshadow creeps along the eastern shores.
+
+Despite these existential threat, the Pirran soul stands firm against this omnipresent onslaught of threats.  Ancient knightly orders have allied with the Church Ecumenical of the Black Citidel, creating a bulwark against extinction and letting the guttering flame of civilization grow to its former heights.  Even the land itself defends the denizens of Pirra; raging seas and ice-peaked mountains have killed more invaders than any battle.
+
+The Pirran soul stands firm, but it is losing.  A nation of Warriors, Pirran leaders know that they cannot stand against organized, well equipped armies from the south.  Without a breakthrough, Pirra will fight bravely, but be crushed by the armies of the Dread Emperor, one glorious defeat at a time.
+
+All is not lost for the good people of Pirra.  The **Libussan Academy** has been chartered by the Church Ecumenical to seek out ancient relics that might turn the tide.  Pirra's vast territories are littered with Imperial, and far older ruins.  These ruins hold the hope of Pirra's salvation.  Ancient relics of immense power lie within them, and that power can be harnessed to save the land.  To that end, brave relic hunters scour these ruins, knowing that success means vast riches, and failure means the destruction of all that they know and love.
