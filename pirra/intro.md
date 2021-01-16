@@ -3,7 +3,7 @@ Larger than any other nation in the known world, Pirra is a land that is both st
 
 Pirra is beset by enemies on all sides.  Temenite raiders harass their western shores.  The Dread Emperor of Anem has claimed it a rebellious province.  Strange beasts shamble north from the Diaspora.  The fungal horror of the moonshadow creeps along the eastern shores.
 
-Despite these existential threat, the Pirran soul stands firm against this omnipresent onslaught of threats.  Ancient knightly orders have allied with the Church Ecumenical of the Black Citidel, creating a bulwark against extinction and letting the guttering flame of civilization grow to its former heights.  Even the land itself defends the denizens of Pirra; raging seas and ice-peaked mountains have killed more invaders than any battle.
+Despite these existential threats, the Pirran soul stands firm against this omnipresent onslaught of threats.  Ancient knightly orders have allied with the Church Ecumenical of the Black Citidel, creating a bulwark against extinction and letting the guttering flame of civilization grow to its former heights.  Even the land itself defends the denizens of Pirra; raging seas and ice-peaked mountains have killed more invaders than any battle.
 
 The Pirran soul stands firm, but it is losing.  A nation of Warriors, Pirran leaders know that they cannot stand against organized, well equipped armies from the south.  Without a breakthrough, Pirra will fight bravely, but be crushed by the armies of the Dread Emperor, one glorious defeat at a time.
 
