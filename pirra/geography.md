@@ -5,7 +5,7 @@ The Pirran border with the Diaspora is protected by the **Kamenogogy**, or "Ston
 
 North of the Kamenogogy, the land descends into rolling foothills, followed by hundreds of miles of forest and steppe.  North of Libussa, the step rapidly gives way to the **Morotslana**, or "Sea of Frost".  The Morotslana is a boreal tundra, teaming rich in wild game and deposits of precious metals.
 
-Pirra's western reaches are dominated by water.  The **Temen Strait** separates the vicious raider-nation of Temen from Libussa's shores.  The <BIG SEA> and <BIG INLAND SEA> offer immense bounties of fish and other foods every day.
+Pirra's western reaches are dominated by water.  The **Temen Strait** separates the vicious raider-nation of Temen from Libussa's shores.  The Great Pirran Gulf and <BIG INLAND SEA> offer immense bounties of fish and other foods every day.
 
 The <EASTERN OCEAN> that laps against Pirra's eastern shores has long been a source of national anxiety.  For centuries it was the origin of Jhil and Chernikan invasion fleets.  More recently, the sunless, fungal horrors of the moonshadow have found their way beneath the waves.  Colonies like Seeben and Sinzengen have been established as bastions against this threat.  The alien growth of the Penumbra has begun to change the land around them, and the residents have found themselves to be pioneers:  settlers of a foreign land within their own borders.
 
