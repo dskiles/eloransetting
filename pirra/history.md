@@ -1,0 +1,16 @@
+#### Pirran History
+Pirra's ancient history is one of chaos and warring clans until 3,112 AC, when the legendary Valdis the Far-Seeing seized the **Black Citadel** from its monstrous inhabitents.  Valdis used the impregnable redoubt as a springboard for a seven year crusade to unite the disparate clans of Pirra under a single banner.  One by one, clans and tribes joined Valdis, some willingly, others through conquest.  By 3,119 AC, the entirety of Pirra was united.  A great althing was convened, where the entire assemblage crowned Valdis as Pirra's first king.  They petitioned to build a great capital around the Black Citadel named Valdigrad, in the king's honor.  Valdis agreed to the construction of a capital, but demanded that it be named Libussa.  The nobles were baffled - why would he not wish to have the city named in his honor?  Valdis smiled and answered.  A king is married to the land.  The land is his to have and to hold, to death do them part.  He laughed, and said it would be unseemly to marry himself.  Libussa was the name of a pretty girl he had known in his youth, and if it would do for her, it would do for the capital.  Some chieftans thought Valdis mad.  Others searched for hidden meanings in his words.  None dared contradict him.
+
+Pirra's elected kings ruled for over eleven centuries, until until the death of King Oldric the Left-Handed.  After the funeral, a great althing was held to elect the next Pirran King.  It was during this vote that a stranger stepped from the crowd.  He was strangely dressed, beardless, and stood a full head shorter than the nobles who surrounded him.  The stranger spoke with a strange accent, but he spoke their language well enough to be understood.  He stood at the head of the assemblage and claimed that he would be king, invoking the ancient rite of combat to settle the question with anyone who disagreed.  It was mere moments before Konrad Hardt, champion of the Hardt clan, took up the challenge.  Hardt was a giant of a man, and dispatched the man as though he were a chicken meant for the stewpot.  The nobles laughed, and went back to their debate.
+
+Moments later, another stranger stepped from the crowd.  Again, he was small, again he was beardles, and again, he claimed that he would be king.  Hardt, barely off the podium rent the man in twain with a single cut of his sword.
+
+Then a third man stepped forward.
+
+Then a fourth.  And a fifth.
+
+Hardt fell into them in a frenzy.  Who were these strangers to make such a mockery of a solemn rite?
+
+Hardt fought like a man possessed, until bodies piled around him like fallen timber.  He grew weary, and never saw the sword that cut between his ribs and ended his life.
+
+Within moments of the champion's fall, a dozen strangers stood at the head of the althing, all claiming that they would be King.  The nobles heard a sound they had thought impossible.  Thousands of hobnailed boots clacked against Libussan streets with the terrible uniformity of a threshing machine.  The legions of the empire had arrived.
