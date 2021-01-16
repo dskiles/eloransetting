@@ -1,7 +1,7 @@
 #### Pirran Geography
 Pirra holds more geographic territory than any nation in the known world.  Its borders encompass a wide array of geographies and climes, from alpine glaciers, to endless steppes, to boreal forests and icy tundra.
 
-The Pirran border with the Diaspora is protected by the **Kamenogogy**, or "Stone Curtain".  This immense mountain range has over a dozen peaks that that rise above 15,000 feet.  The tallest, called the "Godspear", rises a sky-piercing six miles above sea level.  The region is geographically active, with explosive volcanic eruptions and earthquakes leveling hundreds of square miles every few centuries.
+The Pirran border with the Diaspora is protected by the **Kamenogogy**, or "Stone Curtain".  This immense mountain range has over a dozen peaks that that rise above 15,000 feet.  The tallest, called the "Godspear", rises a sky-piercing six miles above sea level.  The region is geologically active, with explosive volcanic eruptions and earthquakes leveling hundreds of square miles every few centuries.
 
 North of the Kamenogogy, the land descends into rolling foothills, followed by hundreds of miles of forest and steppe.  North of Libussa, the step rapidly gives way to the **Morotslana**, or "Sea of Frost".  The Morotslana is a boreal tundra, teaming rich in wild game and deposits of precious metals.
 
