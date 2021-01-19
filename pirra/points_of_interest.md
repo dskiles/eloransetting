@@ -3,7 +3,7 @@
 #### The Black Citadel
 Sitting on the highest of Libussa's hills, the Black Citadel looms large over the citizenry's bodies and souls.  
 
-Captured by Valdis the Far-Seeing two millenia ago, not even its inhuman inhabitants knew of its true origins.  Since its capture, the Black Citadel has served as Pirra's ultimate seat of power - first as a seat of kings, then as an Imperial proconsularium, and now, as the accorded seat of the Church Ecumenical.
+Captured by Valdis the Far-Seeing two millenia ago, not even its inhuman inhabitants knew of its true origins.  Since its capture, the Black Citadel has served as Pirra's ultimate seat of power - first as a seat of kings, then as an Imperial proconsularium, and now, as the accorded seat of the Ecumenical Synod.
 
 The immense structure rises five hundred and three feet above the ground.  Its halls are packed with clerics and scribes of all holy orders, each doing his or her best to keep the wheels of Pirran civilizaton turning.  Rumor has it that the citadel plunges *at least* as deeply into the earth, and that this is where the Inquisition keeps its secret councils.
 
